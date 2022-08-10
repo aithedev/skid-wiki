@@ -14,7 +14,7 @@ Official Domains. These redirect to the repo.
 
 [`TT-Tutorials`](https://github.com/TT-Tutorials) Everything he makes is skidripped + sells free projects from GitHub
 
-[`xmr`](https://github.com/picturing) Skid who has "depression" because everyone keeps leaving him. he's a weirdo, he stalks everyone who leaves him! He's an edgy retard who will always say something like "i ruined everything again." and "i wanna end it". He acts so annoying and wonders why everyone leaves him. He's a simming larp who lives in the slums yet calls everyone poor + omori player so he likes gay child porn + https://a.pomf.cat/icuykj.png
+[`picturing`](https://github.com/picturing) Skid who has "depression" because everyone keeps leaving him. he's a weirdo, he stalks everyone who leaves him! He's an edgy retard who will always say something like "i ruined everything again." and "i wanna end it". He acts so annoying and wonders why everyone leaves him. He's a simming larp who lives in the slums yet calls everyone poor + omori player so he likes gay child porn + https://a.pomf.cat/icuykj.png
 
 [`vital`](https://github.com/v1t4ll) He is a fortnite com skid who moved on to dollhouse roleplay and dahood. He spends his time on telegram, discord, and roblox being an autistic retard whilst some how being smarter than [rias](https://t.me/maltreatment). He trys "ddosing" sites using loic on his free rdp that he got on github. He went through his friends accounts due to him skidding "his" site source when it wasn't his.
 
