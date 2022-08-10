@@ -20,6 +20,8 @@ Official Domains. These redirect to the repo.
 
 [`rias`](https://t.me/pursuers) In his early days, he was egoing people with his "unddosable" ovh. He tried to learn C and was horrible, even while someone was helping him: (https://imgur.com/a/DbigvVv) His worse era was when he was "doxxing", and practicing his opsec: (https://imgur.com/a/M1VSDoy)
 
+[`lewd`](https://t.me/grabify) Poor skid who always begged compto on how to sim swap. Always asking for targs due to him not being able to get any. He's now a call slave for T-Mobile.
+
 #### If you want to contribute, create an issue or pull request.
 
 #### Join the Discord! [discord.gg/skids](https://discord.gg/skids)
