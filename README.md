@@ -14,9 +14,11 @@ Official Domains. These redirect to the repo.
 
 [`TT-Tutorials`](https://github.com/TT-Tutorials) Everything he makes is skidripped + sells free projects from GitHub
 
-[`picturing`](https://github.com/picturing) skid who has "depression" because everyone keeps leaving him. he's a weirdo, he stalks cia and his girl (bro sent her a paragraph that made me think he was mourn's disabled little brother, LOL!), and basically everyone who leaves him!!!. he's an edgy spastic who will always say something like "i ruined everything again.", "it's all my fault", "i miss them", and "i wanna end it". he acts so annoying and wonders why everyone leaves him. he's a simming larp who lives in the slums yet calls everyone poor + omori player so he likes gay child porn + https://a.pomf.cat/icuykj.png
+[`picturing`](https://github.com/picturing) skid who has "depression" because everyone keeps leaving him. he's a weirdo, he stalks eboys and their egirls, and basically everyone who leaves him! he's an edgy spastic who will always say something like "i ruined everything again." and "i wanna end it". he acts so annoying and wonders why everyone leaves him. he's a simming larp who lives in the slums yet calls everyone poor + omori player so he likes gay child porn + https://a.pomf.cat/icuykj.png
 
-[`vital`](https://github.com/v1t4ll) Vital or Kuba Arnold Smith as I will be calling him is a fortnite com skid who moved on to dollhouse roleplay and dahood. He spends his time on telegram, discord, and roblox being an autistic retard whilst some how being smarter than his compadre rias. He trys "ddosing" sites using loic on his free rdp that he got on github. He went through his friends accounts due to him skidding "his" site source when it wasn't his.
+[`vital`](https://github.com/v1t4ll) He is a fortnite com skid who moved on to dollhouse roleplay and dahood. He spends his time on telegram, discord, and roblox being an autistic retard whilst some how being smarter than [`rias`](https://t.me/pursuers). He trys "ddosing" sites using loic on his free rdp that he got on github. He went through his friends accounts due to him skidding "his" site source when it wasn't his.
+
+[`rias`](https://t.me/pursuers) In his early days, he was egoing people with his "unddosable" ovh. He tried to learn C and was horrible, even while someone was helping him. (https://imgur.com/a/DbigvVv) His worse era was when he was "doxxing", and practicing his opsec (https://imgur.com/a/M1VSDoy)
 
 #### If you want to contribute, create an issue or pull request.
 
