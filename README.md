@@ -22,6 +22,8 @@ Official Domains. These redirect to the repo.
 
 [`lewd`](https://t.me/grabify) Poor skid who always begged compto on how to sim swap. Always asking for targs due to him not being able to get any. He's now a call slave for T-Mobile.
 
+[`Goblin Gaming`](https://www.youtube.com/c/GoblinGamingYouTube) A minecraft com skid I met on vasar.gay in early 2022. He was the funniest skid I've met due to his lack of knowledge and his flashcards: (https://imgur.com/a/NnmbVcT). He's chill now but he's still a skid tbh
+
 #### If you want to contribute, create an issue or pull request.
 
 #### Join the Discord! [discord.gg/skids](https://discord.gg/skids)
