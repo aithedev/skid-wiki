@@ -10,7 +10,7 @@ Official Domains. These redirect to the repo.
 
 [`7zhenry`](https://github.com/7z-henry) Skidripped my shit TikTok user checker
 
-[`imvast`](https://github.com/imvast) Skidded its-vichy Discord gen then leaked it with a hidden logger
+[`imvast`](https://github.com/imvast) Skidded its-vichy Discord gen then leaked it with a hidden logger + https://imgur.com/a/wsehUr0
 
 [`TT-Tutorials`](https://github.com/TT-Tutorials) Everything he makes is skidripped + sells free projects from GitHub
 
