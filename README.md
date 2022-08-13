@@ -26,6 +26,8 @@ Official Domains. These redirect to the repo.
 
 [`†††#0006`](https://discord.com/users/985054109281435659) a skid who fanboys over [`TT-Tutorials`](https://github.com/TT-Tutorials) and thinks tt-tutorials doesn't skid anymore. He skidripped non-working Discord token generators and thinks they're "real" (https://imgur.com/a/YquN4aZ)
 
+[`ghxstfxce`](https://github.com/LuyaTools) Skidrips free Discord multi-tools and sells them LMFAO. He also compiles every free tool he makes because he thinks they're "good".
+
 #### If you want to contribute, create an issue or pull request.
 
 #### Join the Discord! [discord.gg/skids](https://discord.gg/skids)
