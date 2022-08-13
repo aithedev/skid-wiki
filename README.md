@@ -12,7 +12,7 @@ Official Domains. These redirect to the repo.
 
 [`imvast`](https://github.com/imvast) Skidded its-vichy Discord gen then leaked it with a hidden logger + https://imgur.com/a/wsehUr0
 
-[`TT-Tutorials`](https://github.com/TT-Tutorials) Everything he makes is skidripped + sells free projects from GitHub
+[`TT-Tutorials`](https://github.com/TT-Tutorials) Everything he makes is skidripped + sells free projects from GitHub + posted a ss of imvasts member booster in his server skull.
 
 [`picturing`](https://github.com/picturing) Skid who has "depression" because everyone keeps leaving him. he's a weirdo, he stalks everyone who leaves him! He's an edgy retard who will always say something like "i ruined everything again." and "i wanna end it". He acts so annoying and wonders why everyone leaves him. He's a simming larp who lives in the slums yet calls everyone poor + omori player so he likes gay child porn + https://a.pomf.cat/icuykj.png
 
@@ -24,7 +24,7 @@ Official Domains. These redirect to the repo.
 
 [`Goblin Gaming`](https://www.youtube.com/c/GoblinGamingYouTube) He's a minecraft com skid and was the funniest skid I've met due to his lack of knowledge and his flashcards: (https://imgur.com/a/NnmbVcT). He's chill now but he's still a skid tbh 
 
-[`†††#0006`](https://discord.com/users/985054109281435659) fanboys over [`TT-Tutorials`](https://github.com/TT-Tutorials) and says he doesnt skid anymore. skull
+[†††#0006](https://discord.com/users/985054109281435659) a skid who fanboys over [TT-Tutorials](https://github.com/TT-Tutorials) and thinks tt-tutorials doesn't skid anymore. He skidripped non-working Discord token generators and thinks they're "real" (https://imgur.com/a/YquN4aZ)
 
 #### If you want to contribute, create an issue or pull request.
 
