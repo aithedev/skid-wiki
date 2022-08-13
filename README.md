@@ -31,3 +31,4 @@ Official Domains. These redirect to the repo.
 #### If you want to contribute, create an issue or pull request.
 
 #### Join the Discord! [discord.gg/skids](https://discord.gg/skids)
+#### Join the cesspool of skids! [t.me/cockbin](https://t.me/cockbin)
