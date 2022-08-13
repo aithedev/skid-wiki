@@ -24,6 +24,8 @@ Official Domains. These redirect to the repo.
 
 [`Goblin Gaming`](https://www.youtube.com/c/GoblinGamingYouTube) He's a minecraft com skid and was the funniest skid I've met due to his lack of knowledge and his flashcards: (https://imgur.com/a/NnmbVcT). He's chill now but he's still a skid tbh 
 
+[`†††#0006`](https://discord.com/users/985054109281435659) fanboys over [`TT-Tutorials`](https://github.com/TT-Tutorials) and says he doesnt skid anymore. skull
+
 #### If you want to contribute, create an issue or pull request.
 
 #### Join the Discord! [discord.gg/skids](https://discord.gg/skids)
