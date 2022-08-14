@@ -28,7 +28,7 @@ Official Domains. These redirect to the repo.
 
 [`ghxstfxce`](https://github.com/LuyaTools) Skidrips free Discord multi-tools and sells them LMFAO. He also compiles every free tool he makes because he thinks they're "good".
 
-[`tech beams aka reaper`][https://github.com/reaperskid] a skid who got exposed for selling free discord multi-tools and admitted to it. He also made two discord tools that are both loggers, including lunar tool (roblox cookie logger) and his mass dm (when you input token it sends it to a webhook) (https://img.lead-tool.win/i/raw/Oa387zw)
+[`tech beams aka reaper`](https://github.com/reaperskid) a skid who got exposed for selling free discord multi-tools and admitted to it. He also made two discord tools that are both loggers, including lunar tool (roblox cookie logger) and his mass dm (when you input token it sends it to a webhook) (https://img.lead-tool.win/i/raw/Oa387zw)
 #### If you want to contribute, create an issue or pull request.
 
 #### Join the Discord! [discord.gg/skids](https://discord.gg/skids)
