@@ -32,6 +32,7 @@ Official Domains. These redirect to the repo.
 
 [`Glen#2555`](https://img.lead-tool.win/i/raw/G8NJOu0) Reaper's little boyfriend that asks for someone to make a tool for him and sells it as its own. Makes death threats and and talks a lot of shit for a little australian kid.
 
+[`discord.gg/emo`](https://discord.gg/emo) "Full of retarded egoistic niggers who cry when "Lizard Squad" is mentioned or ban you for no reason (https://imgur.com/5yt0EWc)" - lewd
 
 #### If you want to contribute, create an issue or pull request.
 
