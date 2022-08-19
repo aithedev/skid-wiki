@@ -36,7 +36,8 @@ Official Domains. These redirect to the repo.
 
 [`discord.gg/emo`](https://discord.gg/emo) A server filled with poor edaters, people who claim their known, and full of retarded egoistic niggers who cry when "Lizard Squad" is mentioned or ban you for no reason (https://imgur.com/5yt0EWc)
 
+[`vexservices aka stan`](https://github.com/vexservices000) Every project on his github is skidripped LOL. I showed him proof that he skidded a project and still denies it. (https://imgur.com/a/xsUCR11)
+
 #### If you want to contribute, create an issue or pull request.
 
 #### Join the Discord! [discord.gg/skids](https://discord.gg/skids)
-#### Join the cesspool of skids! [t.me/cockbin](https://t.me/cockbin)
