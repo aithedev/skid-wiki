@@ -38,6 +38,7 @@ Official Domains. These redirect to the repo.
 
 [`vexservices aka stan`](https://github.com/vex-ss) Every project on his github is skidripped LOL. I showed him proof that he skidded a project and still denies it. (https://imgur.com/a/xsUCR11)
 
+[`balluh`](https://github.com/balluh) Go chad and best python programmer of century
 #### If you want to contribute, create an issue or pull request.
 
 #### Join the Discord! [discord.gg/skids](https://discord.gg/skids)
