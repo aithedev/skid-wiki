@@ -1,5 +1,3 @@
-Just general autists (a geek got mad)
-
 Official Domains. These redirect to the repo.
 
 [skid.wiki](http://skid.wiki) - [skids.wiki](http://skids.wiki)
