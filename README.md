@@ -12,7 +12,7 @@ Official Domains. These redirect to the repo.
 
 [`imvast`](https://github.com/imvast) Skidded its-vichy Discord gen then leaked it with a hidden logger
 
-[`TT-Tutorials`](https://github.com/TT-Tutorials) Everything he makes is skidripped + sells free projects from GitHub + posted a ss of imvasts member booster in his server skull.
+[`TT-Tutorials`](https://github.com/TT-Tutorials) Everything he makes is skidripped. He sells free projects from GitHub and posted a screenshot of imvasts member booster in his server LMAO.
 
 [`picturing`](https://github.com/picturing) Skid who has "depression" because everyone keeps leaving him. he's a weirdo, he stalks everyone who leaves him! He's an edgy retard who will always say something like "i ruined everything again." and "i wanna end it". He acts so annoying and wonders why everyone leaves him. He's a simming larp who lives in the slums yet calls everyone poor + https://a.pomf.cat/icuykj.png
 
