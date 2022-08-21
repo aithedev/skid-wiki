@@ -6,6 +6,8 @@ Official Domains. These redirect to the repo.
 
 [`Astra`](https://github.com/AstraaDev) Made shitty Discord AIO and every feature is skidripped
 
+[`Baller`](https://github.com/Balluh) Skidded his website, poor and has no father
+
 [`Void`](https://github.com/VoidDev1337) Ironic how he made a skidalert bot when he himself is a skid LOL
 
 [`7z`](https://github.com/7z8y) Skidripped my shit TikTok user checker
