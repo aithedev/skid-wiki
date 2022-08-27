@@ -20,8 +20,6 @@ Official Domains. These redirect to the repo.
 
 [`vital`](https://github.com/v1t4ll) He is a fortnite com skid who moved on to dollhouse roleplay and dahood. He spends his time on telegram, discord, and roblox being an autistic retard. He trys "ddosing" sites using loic on his free rdp that he got on github. He went through his friends accounts due to him skidding "his" site source when it wasn't his.
 
-[`rias`](https://t.me/maltreatment) In his early days, he was egoing people with his "unddosable" ovh. He tried to learn C and was horrible, even while someone was helping him: (https://imgur.com/a/DbigvVv) His most retarded era was when he was "doxxing", and practicing his opsec: (https://imgur.com/a/M1VSDoy)
-
 [`lewd`](https://t.me/grabify) Poor skid who always begged compto on how to sim swap. Always asking for targs due to him not being able to get any. He's now a call slave for T-Mobile.
 
 [`Goblin Gaming`](https://www.youtube.com/c/GoblinGamingYouTube) He's a minecraft com skid and was the funniest skid I've met due to his lack of knowledge and his flashcards: (https://imgur.com/a/NnmbVcT). He's chill now but he's still a skid tbh 
