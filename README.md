@@ -26,7 +26,7 @@ Official Domains. These redirect to the repo.
 
 [`†††#0006`](https://discord.com/users/985054109281435659) a skid who fanboys over [`TT-Tutorials`](https://github.com/TT-Tutorials) and thinks tt-tutorials doesn't skid anymore. He skidripped non-working Discord token generators and thinks they're "real" (https://imgur.com/a/YquN4aZ)
 
-[`ghxstfxce`](https://github.com/LuyaTools) Skidrips free Discord multi-tools and sells them LMFAO. He also compiles every free tool he makes because he thinks they're "good".
+[`ghxstfxce`](https://github.com/LuyaTools) Skidrips free Discord multi-tools and sells them LMFAO. He also compiles every free tool he makes because he thinks they're "good", well im making this pr b/c the guy is back and he made a fake "mercurial" grabber. Who was made by a skid [`nightfallgt`](https://github.com/nightfallgt) LOL.
 
 [`tech beams aka reaper`](https://github.com/reaperskid) a skid who got exposed for selling free discord multi-tools and admitted to it. He also made two discord tools that are both loggers, including lunar tool (roblox cookie logger) and his mass dm (when you input token it sends it to a webhook) (https://img.lead-tool.win/i/raw/Oa387zw). Claims he only logged people that claimed his tools as there own but he is full of shit. Claims he has got 200+ tokens from people in his server (https://img.lead-tool.win/i/WdsdU6s). Made fake suicide threats when his tools got cracked and he was exposed for skiding.
 
