@@ -36,4 +36,6 @@ Official Domains. These redirect to the repo.
 
 [`vexservices aka stan`](https://github.com/vex-ss) Every project on his github is skidripped LOL. I showed him proof that he skidded a project and still denies it. (https://imgur.com/a/xsUCR11)
 
+[`billythegoat356`](https://github.com/billythegoat356) Made a big py lib used for colored text called pystyle, and then later added malware to it (10/29/22).
+ 
 #### If you want to contribute, create an issue or pull request.
